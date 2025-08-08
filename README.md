@@ -14,11 +14,15 @@ emphasized the importance of a strong academic foundation.
 Remarks by Dr. Akshay Girdhar (Dean Academics)
 
 Stressed that consistent academic effort is the foundation of success.
+
 Encouraged active participation in lectures, labs, and extra learning opportunities.
+
 Session by Prof. Harleen Kaur (CSE Department)
 
 Discussed the increasing demand for computer science professionals in every sector.
+
 Highlighted career opportunities in AI, software development, and data analytics.
+
 Urged students to focus on problem-solving and teamwork from the first semester.
 
 
