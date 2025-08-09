@@ -26,9 +26,14 @@ Stressed that consistent academic effort is the foundation of success.
 
 Encouraged active participation in lectures, labs, and extra learning opportunities.
 
-Session by Prof. Harleen Kaur (CSE Department)
+Ms. Harleen Kaur, a fellow fresher, gave a heartfelt message of encouragement.
+
+Dr. Parminder Singh (Dean Student Welfare) motivated us to engage beyond academics.
+
+Dr. Sehajpal Singh (Principal) spoke about AI, competition in tech, and the need to build our value.
 
 Discussed the increasing demand for computer science professionals in every sector.
+
 Highlighted career opportunities in AI, software development, and data analytics.
 Urged students to focus on problem-solving and teamwork from the first semester.
 
