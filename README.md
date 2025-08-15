@@ -36,7 +36,13 @@ Discussed the increasing demand for computer science professionals in every sect
 
 Highlighted career opportunities in AI, software development, and data analytics.
 Urged students to focus on problem-solving and teamwork from the first semester.
+After the sessions, around 1:00 PM, we had a lunch break. Then, from 1:30 PM to 2:00 PM, the NCC candidates came and introduced themselves and the unit.
 
+Later, we were taken for a department visit, where our faculty members welcomed us and introduced us to the college and our respective departments. It was a great opportunity to explore our new academic environment.
+
+**Summary – Day 1**
+
+Overall, Day 1 of the induction program was full of inspiration, positivity, and useful information. Hearing from so many experienced and motivating speakers helped us feel more connected and confident about starting our journey at GNDEC. From spiritual beginnings to practical insights — it was a powerful and memorable start to our college life.
 
 
 
