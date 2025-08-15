@@ -48,3 +48,28 @@ Overall, Day 1 of the induction program was full of inspiration, positivity, and
 
 **DAY 2 -(01/08/2025)**
 
+README
+INDUCTION PROGRAM 2025 – GNDEC
+CSE-B
+Day 1 – 31 July 2025 (Thursday)
+The induction program for first-year B.Tech students kicked off at Guru Nanak Dev Engineering College, Ludhiana with enthusiasm and warmth, welcoming the new faces of the Computer Science and Information Technology branches.
+
+The day began with Shabad Kirtan at the Gurudwara Sahib from 8:30 am to 9:30 am, blessing all freshers as they stepped into this new phase of life. The spiritual start created a peaceful and positive environment, setting the tone for the days ahead.
+
+Later, respected faculty members and dignitaries addressed the students, including Shri Ashok Singla (Financial Advisor), who inspired everyone with practical insights and motivating words about shaping a meaningful future.
+
+Towards the end, students were taken to their respective departments and labs, where faculty members shared important details about academics. The first day ended with excitement and curiosity for what was yet to come.
+
+**Day 2 – 1 August 2025 (Friday)**
+
+
+The day started with the English Proficiency Test (9:30–10:30 am), followed by the Mathematics Proficiency Test (11:00–12:00 pm). These tests gave students a clear idea of their strengths and areas for improvement.
+
+Throughout the day, seniors played a big role in guiding and encouraging freshers, making them feel welcomed and comfortable in this new environment.
+
+After a short break, a session in the auditorium introduced the Satya Scholarship Program 2025 for students in need. This was followed by an engaging lecture from Dr. Arashdeep Singh on “Food and its Vital Role in Student Wellness”, highlighting how a balanced diet impacts both academic performance and mood.
+
+The day ended with an interactive session by members of the Causmic Club, who launched induction activities and patiently addressed freshers’ queries.
+
+
+
